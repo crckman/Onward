@@ -11,5 +11,5 @@ In otherwords, you'll need a [premium account](https://www.spotify.com/us/premiu
 
 In typical fashion, I've annotated this playlist with some rambling notes:
 
-### - [Annotated Playlist](https://github.com/crckman/Onward/blob/aeb07af973b496ba147a9e18ded5f1e51cbbe3d1/Onward.ipynb)
+### - [Annotated Playlist](./Onward.ipynb)
 
