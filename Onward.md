@@ -20,7 +20,7 @@ Also, this is one of those annoying songs that incudes some *French* (not much, 
 
 This songs starts up with a deceptively simple structure but is entirely infectious with a nice touch of dissonance.
 
-*Foals* is a band I've very much enjoyed seeing live over the past decade so when I realized they weren't on the playlist...well, it just didn't seem right.  In terms of any potential deeper meaning, this could be seen as a self-critique."
+*Foals* is a band I've very much enjoyed seeing live over the past decade so when I realized they weren't on the playlist...well, it just didn't seem right.  In terms of any potential deeper meaning, this could be seen as a self-critique.
 
 |Track|Song|Artist|Album|Year|
 |-|-|-|-|-|
@@ -40,7 +40,7 @@ If I were to select the playlist subtitle from this track, it'd be: `"Anyone who
 
 The four lines that make the two verses of *Wait* comprise one of the most beautful poems I've ever heard.  The rest of the song just just two words, repeated.  If I could only find a way to swim through the drum rolls at the end...
 
-If I were to select the playlist subtitle from this track, it'd of course be: `"No time"`."
+If I were to select the playlist subtitle from this track, it'd of course be: `"No time"`.
 
 |Track|Song|Artist|Album|Year|
 |-|-|-|-|-|
@@ -48,7 +48,7 @@ If I were to select the playlist subtitle from this track, it'd of course be: `"
 
 I've lost track of what *Muse* has been doing, but I find myself regularly returning to some of the early stuff.
 
-*Cave* has always been one of my favorite songs and 3:34 marks the start my phone's ring tone since 2010."
+*Cave* has always been one of my favorite songs and 3:34 marks the start my phone's ring tone since 2010.
 
 |Track|Song|Artist|Album|Year|
 |-|-|-|-|-|
@@ -58,7 +58,7 @@ I've lost track of what *Muse* has been doing, but I find myself regularly retur
 
 *Twighlight Galaxy* isn't one of those songs where the words aren't clear, there isn't much to add.
 
-The playlist subtitle `"Higher than high"` is drawn from this track."
+The playlist subtitle `"Higher than high"` is drawn from this track.
 
 |Track|Song|Artist|Album|Year|
 |-|-|-|-|-|
@@ -66,13 +66,13 @@ The playlist subtitle `"Higher than high"` is drawn from this track."
 
 *Muse* putting on a rock freakout for the lucky people of Paris.  Video exists. 
 
-Gratuitious feedback/prologue starting at 4:07. "
+Gratuitious feedback/prologue starting at 4:07.
 
 |Track|Song|Artist|Album|Year|
 |-|-|-|-|-|
 |7|Life on Mars?|David Bowie|Hunky Dory|1973|
 
-*Bowie* asking the quite well framed question: `"Is there life on Mars?"`...well who else?"
+*Bowie* asking the quite well framed question: `"Is there life on Mars?"`...well who else?
 
 |Track|Song|Artist|Album|Year|
 |-|-|-|-|-|
@@ -82,7 +82,7 @@ You may, or may not, experience this as a single note held for the entire song (
 
 In anycase, no lyrics.
 
-White noise at 3:03 always launches me."
+White noise at 3:03 always launches me.
 
 |Track|Song|Artist|Album|Year|
 |-|-|-|-|-|
@@ -92,10 +92,10 @@ This is Seattle...and well...*Jimi*...if you haven't heard much live Jimi this i
 
 There's an incredible local player named *Ayron Jones* who performs a mean *Voodoo Chile*, if you ever get the chance see him play...
 
-If I were to select the playlist subtitle from this track, it'd be: `"Don't be 
+If I were to select the playlist subtitle from this track, it'd be: `"Don't be late"`
 
 |Track|Song|Artist|Album|Year|
 |-|-|-|-|-|
 |10|Stone Free|Jimi Hendrix|Freedom: Antlanta Pop Festival (Live)|1970|
 
-This track just happens to follow *Voodoo Chile* but its always been one of my favorites as a bit of a straight-up blues ripper...and certainly gratuitous."
+This track just happens to follow *Voodoo Chile* but its always been one of my favorites as a bit of a straight-up blues ripper...and certainly gratuitous.
