@@ -1,4 +1,4 @@
-# Onward (High than High)
+# Onward (High than high)
 ![Sunburst](Images/daytimesun.jpg)
 
 As music is one of the great passions in my life, I've put together this playlist to share.
