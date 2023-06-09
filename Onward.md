@@ -7,6 +7,9 @@ For me, great rock tends to be irreverent, (hopefully) gratuitous, sometimes cry
 
 Note: The playlist subtitle `"Higher than high"` is drawn from the fifth (5) track, *Twilight Galaxy*.
 
+If you've noticed the *Jungle* sticker on my laptop an wondering: why no *Jungle*?
+A: *Jungle* isn't rock...but they are awesome...and I do have tickets for September!
+
 |Track|Song|Artist|Album|Year|
 |-|-|-|-|-|
 |1|The French Open|Foals|Antidotes|2008|
@@ -15,7 +18,7 @@ This is the opening track on the *Antidotes* album;
 begins with the tuning of *French* horns,
 and is based on the tennis player *Andy Roddick*, who had the fastest serve in the world but (at the time) had't won anything (Tennis:French Open).  Yes, its too clever, by two...but that's *Foals*.
 
-Also, this is one of those annoying songs that incudes some *French* (not much, but given the song consists of only twelve distinct words, its hard to ignore).  Anyway, the phrase is `"Un peu d'air sur la terre"` and can be loosely translated to mean `"a puff of dust"` in reference to the effect of a tennis ball striking the ground of a clay court.
+Also, this is one of those annoying songs that incudes some *French* (not much, but given the song consists of only seventeen distinct words - 7 French / 10 English - its hard to ignore).  Anyway, the phrase is `"Un peu d'air sur la terre"` and can be loosely translated to mean `"a puff of dust"` in reference to the effect of a tennis ball striking the ground of a clay court.
 
 This songs starts up with a deceptively simple structure but is entirely infectious with a nice touch of dissonance.
 
@@ -33,7 +36,7 @@ The applause at 3:29 is Lou taking the stage.
 |-|-|-|-|-|
 |3|Wait|M83|Hurry Up, We're Dreaming|2011|
 
-*M83* (named after the galaxy) is one of my all time favorite bands and one that I'm privileged to be able to see perform live this October.
+*M83* (named after the galaxy) is one of my all time favorite bands and one that I'm excited to be able to see perform live this October.
 
 The four lines that make the two verses of *Wait* comprise one of the most beautful poems...almost a haiku, but not quite.  The rest of the song just just two words, repeated.  If I could only find a way to swim through the final drum rolls...
 
@@ -61,7 +64,7 @@ The playlist subtitle `"Higher than high"` is drawn from this track.
 |-|-|-|-|-|
 |6|Showbiz - Live from the Zenith|Muse|Hullabaloo Soundtrack|2002|
 
-*Muse* putting on a rock freakout for the lucky people of Paris.  Video exists. 
+*Muse* freaking out for the lucky people of Paris.  Video exists. 
 
 Gratuitious prologue at 4:07.
 
@@ -76,11 +79,10 @@ Gratuitious prologue at 4:07.
 |8|Gone|M83|Dead Cities, Red Seas and Lost Ghosts|2003|
 
 You may, or may not, experience this as a single note held for the entire song (~6 minutes). 
-
 In anycase, no lyrics.
 
 White noise at 3:03 always launches me.
-[(If you like more M83, he's a selection.)](https://open.spotify.com/playlist/3IK8RUHE15gxh4BpSknsX2?si=496866566ac24054)
+[(If you like more M83, here's a selection.)](https://open.spotify.com/playlist/3IK8RUHE15gxh4BpSknsX2?si=496866566ac24054)
 
 |Track|Song|Artist|Album|Year|
 |-|-|-|-|-|
